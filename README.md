@@ -1,1 +1,1 @@
-# credit
+jjfastcreditbegin:tualoan.top:jjfastcreditend
