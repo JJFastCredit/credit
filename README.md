@@ -1,1 +1,1 @@
-jjfastcreditbegin:fyinformation.cc:jjfastcreditend sdfsdfsdxxx
+jjfastcreditbegin:jjfastcredit.xyz:jjfastcreditend sdfsdfsdxxx
